@@ -8,6 +8,7 @@ Je souhaite rejoindre une équipe dynamique afin de développer mes compétences
 ### EXPERIENCES PROFESSIONNELLES
 ##### Technicien chauffagiste
 S.T.R, *Marmande*
+
 **2018 - 2025**
 - Pose de poèle/insert à bois/granulés
 - Entretiens de poèle/insert à bois/granulés
@@ -15,6 +16,7 @@ S.T.R, *Marmande*
 
 ##### Manager Cuisine
 Memphis Coffee, *Bonneuil-Sur-Marne*
+
 **2016 - 2017**
 - Cuisine
 - Gestion des commandes
@@ -24,6 +26,7 @@ Memphis Coffee, *Bonneuil-Sur-Marne*
 
 ##### Baccalauréat professionnel hôtellerie restauration - option cuisine
 Lycée Montaleau, *Sucy-En-Brie*
+
 **2010 - 2013**
 
 ### HOBBIES
