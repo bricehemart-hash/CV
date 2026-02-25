@@ -37,8 +37,8 @@ Lycée Montaleau, *Sucy-En-Brie*
 - Voyages
 
 ### COORDONNEES
-**Tel** : 06.88.71.71.xx
+**Tel** : 06.xx.xx.xx.xx
 
 **Mail** : bricehemart@outlook.com
 
-[**GitHub** ](https://github.com/bricehemart-hash)
+[**GitHub** ](https://github.com/briceisworking)
